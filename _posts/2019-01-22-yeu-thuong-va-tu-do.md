@@ -1,0 +1,25 @@
+---
+author: Tôn Thụy Tuyết
+categories:
+- Tâm Lý - Kỹ Năng Sống
+description: Yêu Thương Và Tự Do
+download_links:
+- info: epub
+  url: https://sachvui.com/download/epub/3521
+- info: mobi
+  url: https://sachvui.com/download/mobi/3522
+image: https://sachvui.com/cover/2017/yeu-thuong-va-tu-do.jpg
+layout: post
+permalink: /yeu-thuong-va-tu-do.html
+tags:
+- tải sách miễn phí
+- tải sách nhanh
+- tải ebooks miễn phí
+- pdf miễn phí
+- Yêu Thương Và Tự Do ebook
+- Yêu Thương Và Tự Do pdf
+thumbnail_url: https://sachvui.com/cover/2017/yeu-thuong-va-tu-do.jpg
+title: Yêu Thương Và Tự Do
+---
+
+ <div class="item-desc text-justify"> <p><strong>“Yêu thương và tự do”</strong> là cuốn sách kinh điển gồm những ghi chép và diễn giảng về phương pháp giáo dục mầm non của Tôn Thụy Tuyết. Hàng nghìn hàng vạn phụ huynh nhờ cuốn sách này đã thay đổi hoàn toàn, “tâm hồn bị chấn động, cảm động mà day dứt”, từ đó học được cách yêu thương chân chính, cách giáo dục chân chính. Hàng nghìn hàng vạn trẻ em nhờ cuốn sách này mà phát triển mạnh khỏe, vui sướng, trở thành một lớp người mới có trí lực dồi dào, tâm lý mạnh mẽ, có phẩm chất tự tôn, giàu sức sáng tạo.</p><p>Điều gì làm nên sức hấp dẫn của “Yêu thương và tự do”? Điều gì đã khiến “Yêu thương và tự do” mang lại sự thay đổi to lớn cho nhiều gia đình và trẻ nhỏ đến vậy? Chính nhờ vào nền tảng của phương pháp giáo dục nổi tiếng toàn cầu Montessori, kết hợp với kinh nghiệm thực tiễn nhiều năm của Tôn Thụy Tuyết trong lĩnh vực giáo dục mầm non và được chắp bút bằng tình yêu thương con trẻ vô hạn của tác giả.</p><p><strong>Tôn Thụy Tuyết </strong>dẫn dắt người đọc đến với lý luận của Maria Montessori, giải thích và chứng minh từ các góc độ giáo dục học, tâm lý học và những kinh nghiệm thực tiễn; qua đó chỉ cho chúng ta thấy những sai lầm trong giáo dục con trẻ đã gây nên những hậu quả gì, phương pháp đúng đắn nên ra sao? Đồng thời tác giả giải thích tường tận phương pháp giáo dục dựa trên nền tảng yêu thương, tự do, nguyên tắc, bình đẳng; giải thích điều số đông cha mẹ quan tâm là nên dành cho con cái tình yêu thương như thế nào, đưa ra 3 nguyên tắc nên sử dụng trong gia đình, 7 nguyên tắc lớn nên sử dụng trong trường mầm non. Từ đó, để các bậc cha mẹ có thể dành cho con cái nhiều tình yêu thương hơn nữa, để con trẻ tự lập, có kỷ luật riêng, phát triển trí lực và tâm lý, phát triển nhân cách đạo đức.</p><p>Điều cốt lõi mà cuốn sách chuyển tải, cũng chính là chân lý đơn giản mà lớn lao: “Yêu con, hãy để con được tự lập. Yêu con, hãy để con có được sự tự tôn. Yêu con, hãy cho con đầy ắp tinh thần khám phá thế giới này. Nếu bạn yêu con, hãy để cho con được phát triển theo yêu cầu cuộc sống của chính bản thân chúng”.<br><br><strong>Một độc giả có nickname NNM2009 đã bình luận đầy tâm huyết sau khi đọc “Yêu thương và tự do”:</strong><br><br><em>“Trước đây tôi tự nhận lý luận giáo dục của mình đã rất tân tiến, nhưng sau khi đọc cuốn sách này, tôi phát hiện thực ra một số quan niệm của mình vẫn còn lạc hậu và không đúng đắn, bao gồm rất nhiều đơn vị giáo dục mầm non trên thị trường đã bẻ cong xuyên tạc phương pháp giáo dục Montessori, chỉ trích ra một cách phiến diện một số biện pháp trong đó, nhưng những tư tưởng tinh túy thì chưa bao giờ được quán triệt, phương pháp giáo dục Montessori chân chính phải giống như một câu thơ đã viết - hãy cho con trẻ tình yêu đầy sự tự do ấm áp như ánh nắng mặt trời. Tư tưởng của Montessori không chỉ thể hiện trên phương diện giáo dục trẻ em, mà tôi cảm thấy cũng có thể vận dụng nó vào quan hệ giữa người lớn chúng ta. Nhiều khi chúng ta luôn tự cho rằng yêu thương là đem những thứ bản thân cho là đúng áp đặt người khác, cho rằng mình là Thượng đế cứu vớt người khác, bản thân là đúng, người khác luôn sai, chưa từng suy nghĩ xem người khác thực sự cần gì. Và Tôn Thụy Tuyết đã giúp tôi nhận thức được sai lầm đó của mình, không chỉ trong quan hệ với con trẻ mà cả với những người lớn xung quanh.”</em><br><br><strong>Thông tin tác giả:</strong><br><br><strong>Tôn Thụy Tuyết</strong> sinh năm 1962 tốt nghiệp khoa Trung đại học Ninh Hạ. Cô là chuyên gia giáo dục mầm non, chuyên gia tâm lý học nổi tiếng Trung Quốc, chuyên gia giáo dục Montessori. Cô hiện là ủy viên hội liên hợp khoa học xã hội Ninh Hạ kỳ thứ 2, ủy viên hội phụ nữ Ninh Hạ.</p><p>Tôn Thụy Tuyết là người viết bài đặc biệt cho báo “Ngân Xuyên báo tối”, là MC khách mời đặc biệt cho đài truyền hình Ngân Xuyên, hiệu trưởng trường mầm non Montessori Ninh Hạ, chủ nhiệm trung tâm nghiên cứu giáo dục tâm trí Bắc Kinh. Cô cũng là người khởi xướng và phát động tinh thần giáo dục “Tình yêu và tự do, quy tắc và bình đẳng”;là người đầu tiên du nhập hệ thống, thực hiện giáo dục Montessori quốc tế vào Trung Quốc; thực hiện thành công việc Trung Quốc hóa phương pháp giáo dục khoa học, giành được hiệu quả giáo dục rõ rệt; phát triển và mở rộng lý luận Montessori ở Trung Quốc.</p><p>Các tác phẩm của Tôn Thụy Tuyết đã được xuất bản:<br><br>“Quan sát và sáng tạo” (Tên tạm dịch)<br><br>“Tưởng tượng và sáng tạo” (Tên tạm dịch)<br><br>“Tâm linh và sáng tạo” (Tên tạm dịch)<br><br>“Yêu thương và tự do” (Quảng Văn phát hành tại Việt Nam tháng 7 năm 2013)</p> </div>
